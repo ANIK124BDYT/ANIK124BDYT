@@ -44,4 +44,4 @@ With several years of experience, I build modern web applications and run Minecr
 ### 📫 Connect With Me
 
 - 🌐 Website: [anik124bd.site](https://anik124bd.site)
-- 📧 Email: [anik124bdyt@gmail.com](mailto:anik124bdyt@gmail.com)
+- 📧 Email: [anik124bd.business@gmail.com](mailto:anik124bd.business@gmail.com)
